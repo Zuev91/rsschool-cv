@@ -14,6 +14,6 @@
 
    - The Belarusian State University of Informatics and Radioelectronics(2010-2014) Information Technologies and Control
 
-   - The Rolling Scopes School(2021) iOS Development
+   - The Rolling Scopes School(2021) iOS Development. Currently studying
 
 8. English: London is the capital of Great Britain. Read and write with vocabulary(or google translate). Current level: A2 but working on improving it.
